@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RsystemPro
+- 👀 I’m interested in coding especially about web
+- 🌱 I’m currently creating a real website for myself, sorry i can't tell you about my website subject, it's partially a new idea :)
+- 💞️ I’m looking to collaborate for earn experience
+- 📫 How to reach me: email: rsystempro@gmail.com - telegram: @mrsmh96
+- 😄 Pronouns: king of (hello world) - master of //comments - expert at (... is not a function)
+- ⚡ Fun fact: artificial inteligence will take our place :')
